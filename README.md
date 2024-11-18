@@ -7,4 +7,4 @@
 
 thats it! check out my other socials! (Artexyc, artexycv on discord!)                             
 
-https://tenor.com/view/jujutsu-kaisen-ryoumen-sukuna-king-gif-524352337181906509
+
