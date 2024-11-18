@@ -8,3 +8,4 @@
 thats it! check out my other socials! (Artexyc, artexycv on discord!)                             
 
 
+![f0a092e4bed3056429350364d76035ce](https://github.com/user-attachments/assets/64434291-77ac-45fa-8fbf-5fe7b8f81e38)
