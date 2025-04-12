@@ -1,7 +1,7 @@
-" 𝙢𝙪𝙨𝙩 𝙗𝙚 𝙖 𝙨𝙞𝙜𝙣 𝙖𝙗𝙤𝙫𝙚 𝙢𝙮 𝙝𝙚𝙖𝙙, 𝙞𝙩 𝙨𝙖𝙮𝙨 : 𝙤𝙝, 𝙡𝙤𝙫𝙚 𝙢𝙚 𝙙𝙚𝙖𝙙! "                        
+" 𝔫𝔢𝔵𝔱 𝔰𝔱𝔬𝔭, 𝔰𝔥𝔦𝔟𝔲𝔶𝔞! "                        
 
 
+![Ryomen Sukuna](https://github.com/user-attachments/assets/8f0c4055-4cfd-4a2a-9a65-4012d5fcf8c3)
 
-![★ Columbina](https://github.com/user-attachments/assets/5b67fcf0-2285-4d45-a1f0-c3bef6784e58)
 
-cr: @celeyunn [Twitter / X] ★
+...artexyc _on_ [Twitter / X] ★
