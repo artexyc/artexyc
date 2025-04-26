@@ -16,8 +16,7 @@
 ![xilonen-weapon-dish-and-namecard-v0-24a8yzl48jld1](https://github.com/user-attachments/assets/349241df-f769-4209-92b9-eddfc4598a31)
 
 
-lvl 100 mafia boss to lvl 1 crook 
-(i have no idea who drew this so creds to them ^0^)
+lvl 100 mafia boss to lvl 1 crook (ifaxilo lovers unite)
 
 disc : artexycv . feel free to add!
 
