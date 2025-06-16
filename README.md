@@ -1,9 +1,8 @@
-?!
-
 ![msx4jc](https://github.com/user-attachments/assets/7a03b0cf-d539-4c2f-b5df-d9ec90f1fc4a)
 
 ![Boothill ashfjfnrjrjrdjsksjfjg](https://github.com/user-attachments/assets/7b005eeb-e9c8-4d2d-a717-eb804da1de39)
-
+               
+              "wont you kiss me more?"
 
               5teen. view links b4 interacting. 
               diagnosed autism and ADD.
