@@ -4,7 +4,7 @@
                
               "wont you kiss me more?"
 
-              5teen. view links b4 interacting. 
+              5teen. always int, but be mindful when doing so. 
               diagnosed autism and ADD.
 
 ![mh245c](https://github.com/user-attachments/assets/4789f840-969a-40ad-8c8a-cc7339eeb9b6)
