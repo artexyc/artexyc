@@ -1,6 +1,6 @@
 ![suguru Geto banner](https://github.com/user-attachments/assets/7b462dc3-8369-491f-8964-59018421b9bd)
 
-cr : pinterest *!*
+cr : pinterest *!
 
 
 
