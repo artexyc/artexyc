@@ -1,5 +1,5 @@
- ![Looey but me](https://github.com/user-attachments/assets/7fef0cf4-f4fc-4211-bd3d-e15be1abf85a) />
 
+<img width="644" height="219" alt="image_2026-03-24_132552517" src="https://github.com/user-attachments/assets/bd4fc416-a906-4dfa-b41e-d87734b286c4" />
 
 
 cr : ??? *!*
