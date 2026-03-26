@@ -1,6 +1,10 @@
 
 <img width="400" height="133" alt="tumblr_4c74cfd6c8be4c3f6521d78544b62a65_567cc2a9_400" src="https://github.com/user-attachments/assets/227ac2c8-dd3c-4697-9b8e-6a5589f79c9c" />
-![tumblr_90c70d20a4d97fcb7bd528eca8c3cf58_fe72ffc4_250](https://github.com/user-attachments/assets/6a0b3864-adeb-4897-b4fc-e3226247d5a7)
+
+
+<img width="100" height="100" alt="tumblr_09c98a61980e0961f8ee7c77bb578722_cd22a296_100" src="https://github.com/user-attachments/assets/55c1e48b-6bff-4d4b-8d7d-02b557fe7b75" />   <img width="100" height="100" alt="tumblr_275b245cb51196648772dc444f5cebbd_623cba53_100" src="https://github.com/user-attachments/assets/dbc4c5e3-0e28-4c38-9101-2bba8544bbce" />  <img width="100" height="100" alt="tumblr_d4eac093ea8415a8321fc0e4a4835d95_334b220d_100" src="https://github.com/user-attachments/assets/ecb72fcc-adc4-4819-b4be-98addd3cf623" />
+
+
 
 
 cr : ??? *!*
