@@ -1,6 +1,6 @@
 
 <img width="400" height="133" alt="tumblr_4c74cfd6c8be4c3f6521d78544b62a65_567cc2a9_400" src="https://github.com/user-attachments/assets/227ac2c8-dd3c-4697-9b8e-6a5589f79c9c" />
-<img width="644" height="219" alt="image_2026-03-24_132552517" src="https://github.com/user-attachments/assets/bd4fc416-a906-4dfa-b41e-d87734b286c4" />
+![tumblr_90c70d20a4d97fcb7bd528eca8c3cf58_fe72ffc4_250](https://github.com/user-attachments/assets/6a0b3864-adeb-4897-b4fc-e3226247d5a7)
 
 
 cr : ??? *!*
@@ -21,6 +21,7 @@ not much js dont be weird to me lol
 
 JJK FANS !!!!
 literally if u like any of my interests
+
 
 
 
