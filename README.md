@@ -14,8 +14,7 @@ cr : ??? *!*
 # DNI
 below 13
 basic dni criteria                    
-<img width="400" height="133" alt="tumblr_4c74cfd6c8be4c3f6521d78544b62a65_567cc2a9_400" src="https://github.com/user-attachments/assets/227ac2c8-dd3c-4697-9b8e-6a5589f79c9c" />
-weird ships
+weird ships                       <img width="100" height="100" alt="tumblr_a9c14b3b784c3d00a32b8c0281fa53f5_141bea9d_100" src="https://github.com/user-attachments/assets/b5401898-be33-4225-98ea-31a4e4d2cfb2" />
 
 
 
@@ -25,4 +24,5 @@ weird ships
 
 
 
-<img width="400" height="133" alt="tumblr_4c74cfd6c8be4c3f6521d78544b62a65_567cc2a9_400" src="https://github.com/user-attachments/assets/227ac2c8-dd3c-4697-9b8e-6a5589f79c9c" />
+
+
