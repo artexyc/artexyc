@@ -13,13 +13,15 @@ cr : ??? *!*
 
 # DNI
 below 13
-basic dni criteria
+basic dni criteria                    
+<img width="400" height="133" alt="tumblr_4c74cfd6c8be4c3f6521d78544b62a65_567cc2a9_400" src="https://github.com/user-attachments/assets/227ac2c8-dd3c-4697-9b8e-6a5589f79c9c" />
 weird ships
 
 
 
 
 ![Ciphers ! counter on GitHub](https://komarev.com/ghpvc/?username=artexyc)
+
 
 
 
