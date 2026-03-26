@@ -32,7 +32,7 @@ im a sukuna yume.. idm doubles
 im mentally ill GULP
 i have weird humor
 im way to shy to come up sometimes but i love c+h !!
-
+i like sukugo and other sukuna ships
 
 
 
