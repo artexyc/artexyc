@@ -14,7 +14,13 @@ cr : ??? *!*
 # DNI
 below 13
 basic dni criteria                    
-weird ships                       <img width="100" height="100" alt="tumblr_a9c14b3b784c3d00a32b8c0281fa53f5_141bea9d_100" src="https://github.com/user-attachments/assets/b5401898-be33-4225-98ea-31a4e4d2cfb2" />
+weird ships         
+not much js dont be weird to me lol
+
+# INT
+
+JJK FANS !!!!
+literally if u like any of my interests
 
 
 
