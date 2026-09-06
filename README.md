@@ -1,12 +1,13 @@
+<img width="1000" height="100" alt="tumblr_390d40acee4013bac5bc7ae564eaca07_f393fe75_400" src="https://github.com/user-attachments/assets/944c2996-2532-4947-8e4c-0bc4c2efce91" />
 
-![tumblr_3e4561c2320b610a3101a84367ab2c6a_65f4b829_400](https://github.com/user-attachments/assets/34b8b9f3-f738-4411-a7eb-48e5f4982bbe)
 
 
-<img width="300" height="300" alt="tumblr_adf7039efa6d751708cfcc1c3c6f5ca5_a09821a3_1280" src="https://github.com/user-attachments/assets/0f47a182-6150-42b0-995c-65b46724a907" />
 
-<img width="300" height="300" alt="tumblr_63af949a690e62d3aea5f592e717ba31_40ae7895_1280" src="https://github.com/user-attachments/assets/6bdd531a-afcb-4b3f-b63f-ddd2b3745bb1" />
+<img width="250" height="250" alt="tumblr_adf7039efa6d751708cfcc1c3c6f5ca5_a09821a3_1280" src="https://github.com/user-attachments/assets/0f47a182-6150-42b0-995c-65b46724a907" />
 
-<img width="300" height="300" alt="tumblr_920e9bf856cd7b953ade6bf168fe43fa_872be00f_1280" src="https://github.com/user-attachments/assets/0c11f651-3db0-4f32-a086-11f39348a752" />
+<img width="250" height="250" alt="tumblr_63af949a690e62d3aea5f592e717ba31_40ae7895_1280" src="https://github.com/user-attachments/assets/6bdd531a-afcb-4b3f-b63f-ddd2b3745bb1" />
+
+<img width="250" height="250" alt="tumblr_920e9bf856cd7b953ade6bf168fe43fa_872be00f_1280" src="https://github.com/user-attachments/assets/0c11f651-3db0-4f32-a086-11f39348a752" />
 
 
 
@@ -44,6 +45,7 @@ im a sukuna/akaza/saiki yume.. idm doubles
 
 ![Ciphers ! counter on GitHub](https://komarev.com/ghpvc/?username=artexyc)
 
+<img width="1000" height="100" alt="tumblr_1e41d9fba754496dc0cb26c4dd138163_539c7675_400" src="https://github.com/user-attachments/assets/9e3d1f01-7ee7-4eaf-8da0-9c02e6d7c50c" />
 
 
 
