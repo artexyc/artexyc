@@ -12,14 +12,15 @@
 
 
 
-cr : giyupaw *!*
+cr : flowercaskett *!*
 
 **16** . c+h always allowed .
 
 
-![tumblr_90c70d20a4d97fcb7bd528eca8c3cf58_efcedf1d_2048](https://github.com/user-attachments/assets/63e919d8-556a-4f42-a05b-0654a5a0b586)
+<img width="2048" height="687" alt="tumblr_600688897344b754fb6eb1e3389792a3_f6aa665d_2048" src="https://github.com/user-attachments/assets/fb16fee2-88ce-4d51-a161-80f805430a5e" />
 
-cr: giyupaw
+
+cr: flowercaskett
 
 # DNI
 melanie/sabrina fans 
@@ -31,7 +32,7 @@ not much js dont be weird to me lol
 
 # INT
 
-JJK FANS !!!!
+JJK / TDLOSK FANS !!!!
 literally if u like any of my interests
 
 # BYF
