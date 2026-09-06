@@ -31,7 +31,7 @@ JJK FANS !!!!
 literally if u like any of my interests
 
 # BYF
-im a sukuna yume.. idm doubles
+im a sukuna/akaza/saiki yume.. idm doubles
 1# sukuna fan okbye
 
 
