@@ -2,7 +2,9 @@
 ![tumblr_3e4561c2320b610a3101a84367ab2c6a_65f4b829_400](https://github.com/user-attachments/assets/34b8b9f3-f738-4411-a7eb-48e5f4982bbe)
 
 
-<img width="736" height="736" alt="tumblr_63af949a690e62d3aea5f592e717ba31_40ae7895_1280" src="https://github.com/user-attachments/assets/2a05ea77-0ea7-4660-a81b-908e15bba81a" /> <img width="736" height="736" alt="tumblr_adf7039efa6d751708cfcc1c3c6f5ca5_a09821a3_1280" src="https://github.com/user-attachments/assets/6c32e751-59e7-46c9-b37d-076ac52d9cf0" /> <img width="736" height="736" alt="tumblr_920e9bf856cd7b953ade6bf168fe43fa_872be00f_1280" src="https://github.com/user-attachments/assets/936719f2-f1b7-4f14-a4de-2fd39b44706a" />
+<img width="736" height="736" alt="tumblr_adf7039efa6d751708cfcc1c3c6f5ca5_a09821a3_1280" src="https://github.com/user-attachments/assets/0f47a182-6150-42b0-995c-65b46724a907" />
+<img width="736" height="736" alt="tumblr_63af949a690e62d3aea5f592e717ba31_40ae7895_1280" src="https://github.com/user-attachments/assets/6bdd531a-afcb-4b3f-b63f-ddd2b3745bb1" />
+<img width="736" height="736" alt="tumblr_920e9bf856cd7b953ade6bf168fe43fa_872be00f_1280" src="https://github.com/user-attachments/assets/8c219351-ac2a-4c0e-93bf-48508a44f564" />
 
 
 
@@ -14,15 +16,12 @@
 
 
 
-cr : flowercaskett *!*
+
+cr : hymnis *!*
 
 **16** . c+h always allowed .
 
 
-<img width="2048" height="687" alt="tumblr_600688897344b754fb6eb1e3389792a3_f6aa665d_2048" src="https://github.com/user-attachments/assets/fb16fee2-88ce-4d51-a161-80f805430a5e" />
-
-
-cr: flowercaskett
 
 # DNI
 melanie/sabrina fans 
@@ -42,7 +41,7 @@ im a sukuna/akaza/saiki yume.. idm doubles
 1# sukuna fan okbye
 
 
-![tumblr_bd0f4d8ae1405586b09b89f4c7aba494_7e6f1f2e_100](https://github.com/user-attachments/assets/7c76d4e3-13b8-455d-9d70-18f78e1dfc7b)
+<img width="97" height="57" alt="tumblr_f201e27708d1c4bb99281c13ecb047d6_ebceeefe_100" src="https://github.com/user-attachments/assets/4ac269c1-efeb-467a-b3c2-48fdcd8b22be" />
 
 
 ![Ciphers ! counter on GitHub](https://komarev.com/ghpvc/?username=artexyc)
