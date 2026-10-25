@@ -20,7 +20,7 @@ cr : me !
 
 
 
- <img width="62" height="244" alt="g390" src="https://github.com/user-attachments/assets/d859e69a-a9b3-4648-904d-ed9941644dee" />  ॱֺּׅ𓏽ִ  𓎢𓎟𓎡  
+ <img width="62" height="60" alt="g390" src="https://github.com/user-attachments/assets/d859e69a-a9b3-4648-904d-ed9941644dee" />  ॱֺּׅ𓏽ִ  𓎢𓎟𓎡  
 ◝ ⑅ ◡◡‿   introvert .  ִ⑅𓏪̣
 
 “  *super craig ! cant find his guinea pig. go tell the coon that im not playing until i find stripe.*   „
