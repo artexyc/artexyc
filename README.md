@@ -1,3 +1,6 @@
+## hi im doing free art for a limited time (SKETCH ONLY unless u pay for colors) for my instagram and tiktok so i can get comms ok if youre interested check my prns page
+
+
 <img width="500" height="70" alt="tumblr_041926c27fb835baad0bdc8a592c3dad_38a33771_400" src="https://github.com/user-attachments/assets/602b964a-b677-42da-b249-397f38c02562" />
 
 
