@@ -48,8 +48,4 @@ cr to the artists !
 
 
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zthmv7f5vevbqlufexq24dggi4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
-  </a>
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zthmv7f5vevbqlufexq24dggi4&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b14e71)](https://github.com/kittinan/spotify-github-profile)
