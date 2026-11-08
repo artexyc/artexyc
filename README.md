@@ -1,9 +1,6 @@
 
 
 
-<img width="500" height="70" alt="tumblr_041926c27fb835baad0bdc8a592c3dad_38a33771_400" src="https://github.com/user-attachments/assets/602b964a-b677-42da-b249-397f38c02562" />
-
-
 
 
 
@@ -42,7 +39,6 @@ cr to the artists !
 
 ![Ciphers ! counter on GitHub](https://komarev.com/ghpvc/?username=artexyc)
 
-<img width="500" height="70" alt="tumblr_041926c27fb835baad0bdc8a592c3dad_38a33771_400" src="https://github.com/user-attachments/assets/602b964a-b677-42da-b249-397f38c02562" />
 
 
 
