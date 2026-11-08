@@ -7,7 +7,7 @@
 
 
 
-<img width="700" height="700" alt="Untitled42_20261025145738" src="https://github.com/user-attachments/assets/a1a38aed-9ed5-4f7a-ba98-3cc8e385d060" />
+<img width="750" height="750" alt="Untitled55_20261108110314" src="https://github.com/user-attachments/assets/c6f48629-693e-4276-9812-471bbb8e0810" />
 
 
 
@@ -17,7 +17,7 @@
 
 
 
-cr : me !
+cr to the artists !
 
   ݁    𑙕ྀི𓈒ੵ. ݂ .𓈒 ᩙ𑁬 
 
