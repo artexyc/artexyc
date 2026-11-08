@@ -44,4 +44,14 @@ $\normalsize{\textsf{lorem ipsum}}$
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zthmv7f5vevbqlufexq24dggi4&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b14e71)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zthmv7f5vevbqlufexq24dggi4&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b14e71)](https://github.com/kittinan/spotify-github-profile)    
+
+
+
+
+
+
+https://github.com/user-attachments/assets/55a37570-6390-4d88-b941-882cc9579abc
+
+
+
