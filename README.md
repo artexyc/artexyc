@@ -14,7 +14,7 @@
 
 
 
-cr to the artists !
+cr to the artists ! graphics made by me
 
   ݁    𑙕ྀི𓈒ੵ. ݂ .𓈒 ᩙ𑁬 
 
